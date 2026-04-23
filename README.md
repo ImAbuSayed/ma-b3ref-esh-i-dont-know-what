@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> نار الشوق في قلبي تقيد
+> بين يدي قمر جديد
+> تعالي نعيش هذا الخيال
+> نبض الحب لكِ يزيد
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
